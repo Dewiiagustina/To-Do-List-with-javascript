@@ -1,1 +1,2 @@
-![uploading](image/Screeshot (380).png)
+![uploading](image/hasil.png)
+
